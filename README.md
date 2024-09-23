@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Glitchy404-sys
-- 👀 I’m interested in : Erorr. 
+- 👀 I’m interested in : IT. 
 - 🌱 I’m currently learning : Erorr
 - 💞️ I’m looking to collaborate on : Erorr
 - 📫 How to reach me : Erorr. 
